@@ -1,7 +1,5 @@
 # The-Hoop-Park
-ÀºÇò°®ºÃÕßµÄ¾Û¼¯µØ
+ç¯®çƒçˆ±å¥½è€…çš„èšé›†åœ°
 This is why we play.
-fuck you!
-give me the ball£¡
-xhmĞ¡¼¦°É
-ÎªÉ¶ÄØ
+give me the ball!
+I will let you get the feeling of the victory.
